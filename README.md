@@ -1,1 +1,1 @@
-fake love calculator 🤭
+fake
